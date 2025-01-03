@@ -11,6 +11,8 @@ Enough about the past.
 
 This blog will follow my adventures throughout New Zealand and beyond! I'm starting this in January of 2025 so I have a little catching up to do. (We moved in June of 2023) I plan to write about cool spots I find, interesting encounters, things I learned, and some self reflections. 
 
+If you're looking for things to do in Wellington, or cool spots in Wellington I'm sure you will find some here!
+
 This is also a work in progress, in the future I would like to build a community around this blog. I want to add a comment section, first time travelers tips and tricks, and share any useful reasources I find to help new travelers get out there!
 
 
