@@ -15,7 +15,7 @@ Naturally I ran up and slid down into the little spot just like in the movie and
 After I had my fun I finished my hike over the mountain and my journey home. Command hooks in hand and a successful adventure under my belt.
 
 
-If you want to explore the spot here is the google maps link 🙂
+If you want to explore the spot here is the google maps [link](https://maps.app.goo.gl/QBSdGrct2kfcekmc7) 🙂
 
-https://maps.app.goo.gl/QBSdGrct2kfcekmc7
+
 
