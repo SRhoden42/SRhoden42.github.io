@@ -14,6 +14,4 @@ That evening I got it wrapped up and kept going. By the next weekend I was back 
 
 For my fellow travelers looking to do something similar, there are lodge host positions at each of the three lodges that can accommodate couples. You get to stay up on the mountain for the whole season, or you can do what I did and join the volunteer crew that comes up on weekends.
 
-Here is a link to their website:
-
-https://www.tukino.org/
+Here is a link to their [website](https://www.tukino.org/) :)
